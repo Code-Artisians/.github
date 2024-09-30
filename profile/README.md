@@ -45,7 +45,7 @@ We’re ready to collaborate and turn your ideas into reality. Feel free to reac
 Мы готовы к сотрудничеству и поможем воплотить любую вашу идею в реальность. Свяжитесь с нами!
 
 📧 **Почта**: [codeartisians@internet.ru](mailto:codeartisians@internet.ru)  
-💬 **Telegram**: [C4ernikov](https://t.me/c4ernikov) | [Maryankov](https://t.me/maryankovq)
+💬 **Telegram**: [Chernikov](https://t.me/c4ernikov) | [Maryankov](https://t.me/maryankovq)
 
 ---
 
